@@ -10,6 +10,7 @@ Setting Fuel to low levels makes your car lighter. Gaining 0.5 a second against 
 
 Not fancy just simple.
 
+Visit Discord below to download ACC Fuely
 https://discord.gg/PQ4mWK8e76
 
 
